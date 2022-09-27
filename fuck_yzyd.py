@@ -1,5 +1,5 @@
 #----------------------------------------
-# Compile :LIBYA 
+# Population place:LIBYA 
 # Facebook:yzyd ly
 # WhatsApp:0918024408
 # ----------------------------------------
